@@ -1,1 +1,1 @@
-# Artficial
+# Artificial
